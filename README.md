@@ -1,9 +1,9 @@
-Hi, I'm Osborn 👋
+## Hi, I'm Osborn 👋
 
-Ich erstelle seit 2021 Wallpaper für euch. Ich glaube daran, alle meine Wallpapers und mein Wissen übers Digitale Zeichnen weiter zugeben, damit jeder davon profitieren kann!
+### I've been creating wallpapers for you since 2021. I believe in passing on all my wallpapers and digital drawing knowledge so everyone can benefit!
 
-Eine Liste meiner beliebtesten Wallpaper findest "Du" auf meiner Projektseite oder im Workshop von mir.
+### You can find a list of my most popular wallpapers on my project page or in my workshop.
 
-Ich Bitte euch meine Arbeit mit einem ❤️(Herz) zum Wohle aller zu unterstützen. Derzeit verbringe ich etwa die Hälfte meiner Zeit mit erstellen von Wallpaper und die andere Hälfte damit, diese für Wallpaper Engine vorzubereiten. Mein Ziel ist es, das jeder einen Tollen Hintergrund von mir im besitz zu haben.
+### I ask you to support my work with a ❤️ (heart) for the benefit of all. I currently spend about half my time creating wallpapers and the other half preparing them for ### Wallpaper Engine. My goal is for everyone to have a great background of mine.
 
-Ich verdine kein Geld mit der Arbeit daher, sind meine Werke unter Copyright und dürfen nicht verkauft werden oder sonst was mit denen Getrieben werden.
+### I don't earn any money with the work, so my works are under copyright and may not be sold or anything else done with them.
