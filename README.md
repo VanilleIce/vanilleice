@@ -1,4 +1,4 @@
-## Hi, I'm Osborn 👋
+## Hi, I'm Ostborn 👋
 
 ### I've been creating wallpapers for you since 2021. I believe in passing on all my wallpapers and digital drawing knowledge so everyone can benefit!
 
@@ -12,5 +12,5 @@
 
 <p align="center"> 
   Visitor count<br>
-  <img src="https://profile-counter.glitch.me/osborntv/count.svg" />
+  <img src="https://profile-counter.glitch.me/ostborntv/count.svg" />
 </p>
